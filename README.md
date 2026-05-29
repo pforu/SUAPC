@@ -2,4 +2,4 @@
 
 2025 Summer 참가
 
-2026 Winter 참가 예정 
+2026 Winter 참가
